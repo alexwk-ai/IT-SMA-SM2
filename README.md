@@ -1,1 +1,1 @@
-# IT-SMA-SM2
+# alexwk-ai.github.io
